@@ -1,2 +1,2 @@
-# prelim-is
-Voice2Notes
+De Guzman, Vince Hedric
+Jyl Lorenz, Galvez
